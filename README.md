@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Hani @hanisharaf12
+- 👀 I’m interested in photography and football 
+- 🌱 I’m currently learning Bachelor of Technology spcl. in Cloud Technology and Information Security
+- 📫 You can reach me on hani_.sv on instagram or +966530410218 on whatsapp!
